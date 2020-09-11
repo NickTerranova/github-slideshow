@@ -21,5 +21,5 @@ Used heavily durring the 2016 presidential election
 Used for career networking (linked in)
 Ways to discover news, but need to find a reliable source
 To bring people together and interact
-
+---
 
